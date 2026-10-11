@@ -1,2 +1,1 @@
-# Zhaahin-
-Website aan ku barto cybersecurity iyo amniga internetka
+website an ku barto sida whatsppka lo jabsado iyo telegramka facebook
